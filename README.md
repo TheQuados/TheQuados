@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TheQuados
+- 👀 I’m interested in all sorts of pc stuff.
+- 📫 reach me on: quados.kontakt@gmail.com
